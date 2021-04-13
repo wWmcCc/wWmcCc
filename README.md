@@ -1,5 +1,5 @@
-- hi i wWm grup 
-- I’m interested in I’m interested in we ralizejd anyting...
+- wWm grup 
+- we ralizejd anyting...
 - Ask ,we will see.//
 - priv
 - gregf9007@gmail.com    only.////.  🌐🌐🌐  ♟️🎴🎲🔫🎯🎟️🏬🚁🚗🚔🚖🏍️🛵⛽🛢️🌐🌐🌐
